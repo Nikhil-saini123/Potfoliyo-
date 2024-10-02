@@ -1,2 +1,0 @@
-# Potfoliyo-
-My projects
